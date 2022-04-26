@@ -1,1 +1,1 @@
-I entered to Github.com
+I worked in Github.com
